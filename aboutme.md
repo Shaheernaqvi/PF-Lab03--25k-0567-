@@ -1,0 +1,1 @@
+My name is Syed Ali Shaheer, and I am currently pursuing a Bachelor of Science in Computer Science (BSCS). In addition to my academic journey, I have a deep passion for football and enjoy playing it whenever I get the chance. I’m also dedicated to continuously learning new things, aiming to expand my skills and knowledge to stay ahead in both my personal and professional life.
