@@ -8,5 +8,6 @@ My name is Shaheer, a BSCS student at FAST NU with a deep passion for programmin
 *PF
 *Ap
 *IST
+
 This project is _designed to be user-friendly_ and efficient.
 **Programming fundemental LAB**
